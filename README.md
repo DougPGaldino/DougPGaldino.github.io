@@ -1,1 +1,0 @@
-# DougPGaldino.github.io
